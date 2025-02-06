@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on development of software
 - 📫 How to reach me in instagram 
-- 😄 Pronouns: Rosé♡
+- 😄 Pronouns: Diani♡
 - ⚡ Fun fact: I'm fun and like kpop♡♡
 
 <!---
